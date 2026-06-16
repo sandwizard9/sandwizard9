@@ -1,7 +1,7 @@
 Hello! im jake. my pronouns are he/him. 
-i like to make a lot of silly jokes!
+
 i usually spend my time on pony town talking to friends or attending roleplays/minigames. 
-i hide people liberally! 
+i hide people liberally
 
 
 <!---
