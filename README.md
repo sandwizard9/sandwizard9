@@ -1,10 +1,1 @@
-Hello! im jake. my pronouns are he/him. 
 
-i usually spend my time on pony town talking to friends or attending roleplays/minigames. 
-i hide people liberally
-
-
-<!---
-sandwizard9/sandwizard9 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
